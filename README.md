@@ -1,3 +1,3 @@
-# OCEChain comming soon
+# OCEChain will release on 2019 Q1
 
 
